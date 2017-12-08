@@ -39,6 +39,10 @@ Unnoticed in some squalid street.
 The Proctor buys a pupil ices, And hopes the boy will not resist
 When he attempts to practise vices Few people even know exist.
 
+The Quarry, fleeing form the outing,
+Sinks panting in the reeds and mud;
+and hearkens to the distant shouting
+That tells him they are out for bloody
 
 The sight of the Uncle gives no pleasure,
 But rather cases much alarm:
